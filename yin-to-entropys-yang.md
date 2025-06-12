@@ -18,7 +18,7 @@ The reason superconductors work?
 
 Electrons fall into step—acting no longer like individuals, but like something greater, something shared. The whole becomes smooth.
 
-The reason you can tune a radio with your fingers?
+The reason you can tune an analog radio by turning a knob with your fingers?
 
 Get close enough, and something takes over—locking your imperfect input into the signal, narrowing the gap until it vanishes.
 
